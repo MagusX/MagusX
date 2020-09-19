@@ -2,4 +2,4 @@ I started with drawing when I was a kid. Later on, as a teenager I was still bus
 Actually, I'm trying to fix that.</br>
 P.S: Honestly, programming is stressful and draining AF.
 
-https://drive.google.com/file/d/1WMunzJNUrK_bixpqnHEligKTEdM_2HQ9/view?usp=sharing
+https://drive.google.com/file/d/1uCzVe8nB-m-zVOH-48M8tBe2FTHK8-Tb/view?usp=sharing
