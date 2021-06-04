@@ -1,4 +1,5 @@
-### Intro
+### <img src="https://raw.githubusercontent.com/MxCvlibr/MxCvlibr/master/wave.gif" width="30px"> Intro <img src="https://raw.githubusercontent.com/MxCvlibr/MxCvlibr/master/wave.gif" width="30px">
+
 I started with drawing when I was a kid. Later on, as a teenager I was still busy with my lego sets. And now, I'm fascinated by the world of programming. Rarely had I have much joy and freedom in my creations with anything else other than such routines.
 
 ### Stats
