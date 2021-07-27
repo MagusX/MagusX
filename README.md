@@ -7,6 +7,5 @@ I started with drawing when I was a kid. Later on, as a teenager I was still bus
 
 <img src="https://raw.githubusercontent.com/MxCvlibr/MxCvlibr/master/200.gif" width="500px" height="300px">
 
-https://drive.google.com/file/d/1U_E68wYdDiobf9b4VLYuLzSVn6_wlOed/view?usp=sharing
 
 
